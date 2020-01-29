@@ -5,7 +5,7 @@ Syllabus
 
 **Fall 2018**
 
-**Time: Thursday 5:30PM - 7:30PM**
+**Time: Thursday 6:00PM - 8:00PM**
 
 *This document is subject to revision!*
 
